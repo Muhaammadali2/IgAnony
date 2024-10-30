@@ -1,1 +1,1 @@
-Welcome to the IG Story Downloader! This tool allows users to easily download Instagram stories for personal use..  Visit now for your favorite choices!
+Welcome to the [IG Story Downloader](https://itsiganony.com/ig-story-downloader/)! This tool allows users to easily download Instagram stories for personal use. Check it out to get started!
